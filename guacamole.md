@@ -10,5 +10,6 @@
 8.- Guacamole (opcional)
 9.- Guacamole (recomendado)
 10.- ajo
+11.- Consomé de pollo
 ### Preparación
 
