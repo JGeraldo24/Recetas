@@ -7,7 +7,8 @@
 5.- pimienta
 6.- cilantro
 7.- cebolla blanca picada (fina)
-3.- Guacamole (opcional)
-4.- Guacamole (recomendado)
+8.- Guacamole (opcional)
+9.- Guacamole (recomendado)
+10.- ajo
 ### Preparación
 
