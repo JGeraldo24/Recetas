@@ -6,4 +6,5 @@
 4.- Aguacates
 ### Preparación
 - Moler el aguacate y agregar al guacamole
-- limony sal indispensable
+- limon y sal indispensable
+- Meter el menjurge a la licuadora
